@@ -6,4 +6,4 @@ https://discord.gg/t93abVa
 
 
 
-pls join
+pls join (jk you dont have to)
